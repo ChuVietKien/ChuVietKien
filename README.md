@@ -1,4 +1,4 @@
-# Hi there, I'm Chu Viet Kien (Kevin310703) 👋
+# Hi there, I'm Chu Viet Kien 👋
 
 > *"Continuous learning is the minimum requirement for success in any field."*
 
